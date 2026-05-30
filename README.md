@@ -6,7 +6,7 @@ Estou em busca de transição de carreira para a área de Qualidade de Software 
 
 ## 📠 Mais informações e contato 
 
-📃 [Currículo](https://drive.google.com/file/d/1CFt9SyO5MdV1xdrvKJxqrmWAGriz9_FD/view?usp=sharing)<br>
+📃 [Currículo](https://drive.google.com/file/d/1Ty2CXIwpugnQ1CwaJOdCNkJ41vPQmCxe/view?usp=sharing)<br>
 🖥️ [Perfil no LinkedIn](https://www.linkedin.com/in/mendes-leonardo/)<br>
 📧 [Me envie um e-mail](mailto:ld97.mendes@gmail.com)
 
